@@ -1,1 +1,0 @@
-I am science student.
